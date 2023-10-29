@@ -1,4 +1,4 @@
-[![Header](https://github.com/k-agg17/k-agg17/blob/main/Black%20Minimal%20Email%20Header.png)](https://www.datascienceportfol.io/kavyaaggarwal)
+[![Header](https://github.com/k-agg17/k-agg17/blob/main/Technology%20google%20classroom%20header%20in%20purple%20illustrative%20style.png)](https://www.datascienceportfol.io/kavyaaggarwal)
 
 ##### Hi, I'm Kavya Aggarwal:
 
